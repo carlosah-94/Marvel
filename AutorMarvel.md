@@ -1,0 +1,5 @@
+# STAN LEE
+
+Stanley Martin Lieber (Manhattan, Nueva York, 28 de diciembre de 1922-Los Ángeles, California, 12 de noviembre de 2018), más conocido como Stan Lee, fue un escritor y editor de cómics estadounidense, además de productor y actor ocasional de cine.
+
+Es principalmente conocido por haber cocreado personajes icónicos del mundo del cómic tales como Spider-Man, X-Men, Los 4 Fantásticos, Hulk, Iron Man, Thor, Daredevil, Doctor Strange, Black Panther, Ant-Man y Bruja Escarlata, entre otros muchos superhéroes, casi siempre acompañado de los dibujantes y escritores Steve Ditko y Jack Kirby. El trabajo de Stan Lee fue fundamental para expandir Marvel Comics, llevándola de una pequeña casa publicitaria a una gran corporación multimedia. Durante décadas, los cómics de Marvel se distinguieron por indicar siempre Stan Lee presenta en los rótulos de presentación. También tuvo un programa televisivo en History Channel en donde buscaba superhumanos reales.
